@@ -1,4 +1,4 @@
-# ataraxia-
+# ataraxia
 five minutes of reflection
 
 say what's on your mind
